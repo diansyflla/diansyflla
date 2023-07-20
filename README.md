@@ -9,7 +9,6 @@
 
 - 📩 Reach me via diansyafilla2306@gmail.com
 
-- 🌟 Fun fact tentang aku, aku suka keliling kota di malam hari
 
 
 <h3 align="left">Languages and Tools:</h3>
